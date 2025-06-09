@@ -1,0 +1,1 @@
+* Create a way for the players to piss off the storm god so that the Elder Tempest encounter is more likely to happen.
